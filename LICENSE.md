@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with smart leverage trading bot Addon | position-sizing + market-making, the #1 leverage trading bot. Includes position-sizing and market-making for a
 
 
 
